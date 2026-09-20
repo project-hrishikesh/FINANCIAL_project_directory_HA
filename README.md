@@ -1,1 +1,0 @@
-# FINANCIAL_project_directory_HA
